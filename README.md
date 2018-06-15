@@ -1,3 +1,1 @@
-# hal-senka2018web-test
-dddd
-dwdwadwadwa
+# HAL Web専科2018 yeah!!
